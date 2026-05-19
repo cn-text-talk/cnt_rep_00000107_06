@@ -11,6 +11,7 @@
 <br>1.[邪男鬼A]砍[好男B][魂魄身体][下半身][C].
 <br>2.[邪男鬼A]把[C]放到[邪男鬼A][鬼心处],[好男B]亲缘[好女D]就会被:色诱拐,上床欺骗。
 <br>
+<br>邪灵附体,快速扩散,的原因之一,就是因为这个。
 </h3>
 <hr>
 <img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
